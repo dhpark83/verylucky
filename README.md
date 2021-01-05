@@ -1,2 +1,0 @@
-# verylucky
-goodluck
